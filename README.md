@@ -1,1 +1,1 @@
-# WhitePaper-IND
+# WhitePaper-ENG
